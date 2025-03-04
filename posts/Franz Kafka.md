@@ -1,0 +1,4 @@
+- German-speaking Jew from Prague
+- Kafka’s father was tyrannical and Kafka found a way to express himself in his fiction by creating characters who are shy, passive, and sensitive victims who struggle against authoritarian forces
+- felt estranged from other people for not being an Orthodox Jew, and for being a German-speaking minority
+- “kafkaesque” has taken on the meaning of an unsettling, disorientating, nightmarish world that is both fearful and menacing in his ambiguity and complexity

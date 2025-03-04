@@ -1,0 +1,13 @@
+- written in 1912, published in 1915 by [[Franz Kafka]]
+- focuses on a tortured father-son relationship as well as the individual’s estrangement from society
+- his grotesque images combined with his struggling and ultimately defeated hero, defined an age wherein the alienated man—the anti-hero—grapples with meaning and justice in an inscrutable world, and is denied answers to both
+- modernist in themes
+	- “the deepest problems of modern life derive from the claim of the individual to preserve the autonomy and individuality of his existence in the face of overwhelming social forces, of historical heritage, of external culture, and of the technique of life”
+- emphasis on symbol and on the juxtaposition of the real and the fantastic, the rational and the irrational, and the ordinary and the extraordinary
+- characterization of Gregor Samsa (page 75-76)
+	- doesn’t speak, which is quite interesting considering he was turned into a bug (yet doesn’t scream)
+	- doesn’t feel stressed about being a bug, but rather just thinking about how it’s cloudy today, he can’t turn onto his right side to sleep more, his stomach is itchy, his job is stressful, he doesn’t have close friends, etc.
+	- interesting contrast between his complaining about his job requiring him to travel too much and his current inability to even move to his right side
+	- very direct, factual, neutral tone
+		- the only display of emotions or non-neutral tone is relating to his job, rather than his turning into a bug
+	- the description of Gregor scratching his stomach is very factual and shows he doesn’t yet know his body, it shows his alienation from his new body
