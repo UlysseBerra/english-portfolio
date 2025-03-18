@@ -1,0 +1,31 @@
+- what is a text
+	- anything that can be read and conveys meaning
+	- read as in the very broad idea of understanding, not strictly words
+	- anything that is a body of works, has a sense of authorship
+	- literary/nonliterary distinction
+		- see textbook for non-exhaustive list of types of works in each category
+- minimum text requirements for IB English
+	- six works (two in the PRL for English, two in the PRL for other language, two freely chosen) including
+		- two literary works for each area of exploration
+		- three literary forms
+		- three literary periods
+- areas of exploration
+	- readers, writers, and texts
+	- time and space
+	- intertextuality: connecting texts
+- assessments
+	- paper 1
+		- 2 hours 15 minutes
+		- 35%
+		- two commentaries on each of two non-literary texts
+	 - paper 2
+		 - 1 hour 45 minutes
+		 - 25%
+		 - a comparative essay on two literary texts studied in class
+			- no double dipping with the HLE or IOs
+	- HL essay
+		- 20%
+		- a 1200-1500 word on a text (literary or nonliterary) and a line of inquiry
+	- IO
+		- a 10-minute oral and 5-minute discussion on two prepared passages (chosen by the student)
+		- one literary and one nonliterary passage, connected by a global issue of choice
