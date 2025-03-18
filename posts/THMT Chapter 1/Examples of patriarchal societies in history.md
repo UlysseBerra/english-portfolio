@@ -1,0 +1,4 @@
+- Ancient Greece
+	- Athens is often glorified as the birthplace of democracy, yet political participation was reserved for property-owning men, while women were confined to domestic roles. Even in Sparta, where women had relatively more rights, their value was largely tied to their ability to produce warriors for the state.
+- Victorian Britain
+	- the British Empire, built on colonial extraction and industrial labor, upheld rigid gender roles that kept women economically dependent on men. The “separate spheres” ideology dictated that men controlled the public world of work and politics, while women were confined to unpaid domestic labor. Legal systems ensured that wealth stayed in male hands—married women couldn’t own property until 1870, and divorce was nearly impossible without a husband’s consent.

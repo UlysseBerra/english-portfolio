@@ -1,0 +1,5 @@
+The Christian Right grew in political power during the 1980s, by aligning their beliefs not with religious ideology but instead with corporate interests and right-wing politicians. Groups like the Moral Majority and figures like Jerry Falwell pushed for policies that claimed to uphold “family values” but in reality served to undermine workers’ rights, dismantle social safety nets, and reinforce rigid gender roles.
+
+Under Reagan, religious conservatives successfully lobbied against abortion rights, sex education, and LGBTQ+ rights, while simultaneously backing economic policies that widened inequality and gutted public welfare. The same politicians who preached about “protecting families” were the ones cutting aid for low-income parents, ensuring that struggling families had fewer resources while telling them that their poverty was a moral failing rather than a systemic issue.
+
+Obviously the consequences can still be felt today more than ever. Christian fascism is not, and never was about religion but rather about preserving existing power structures by dressing them up as “traditional values”.

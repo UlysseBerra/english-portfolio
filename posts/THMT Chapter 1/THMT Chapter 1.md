@@ -1,0 +1,6 @@
+- humanity/youth’s ability to adapt to adverse conditions
+- fall of empires, change of power (“still said US on them”)
+- constraints placed upon women as simply becoming physical rather than social
+- emphasis on the body, the only part of their autonomy they couldn’t take away (or could they)
+- “night”: darkness, fear, yet only ever passing, dawn always comes eventually
+- “couldn’t be trusted with guns”: when our culture becomes so rooted in distrust that even those who uphold political power cannot be armed
