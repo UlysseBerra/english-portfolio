@@ -1,6 +1,6 @@
 1. What was Szymborska’s mother’s maiden name?  
 	1. Rottermund  
-	2. Słowinkska  
+	2. Słowinska  
 	3. Ruta  
 	4. Schmidt  
 2. What was Szymorska’s father’s last name?  
