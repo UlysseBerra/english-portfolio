@@ -1,0 +1,7 @@
+The readings all show a pattern about how the West loves turning survival into heroic drama, especially when it can reframe the story around itself.
+
+Take Yeonmi Park. Her dramatic tales about escaping North Korea have made her famous but her history of exaggerations and far-right connections make her more of a performer than a reliable witness. Western audiences eat it up because they love a dramatic, savior-centered narrative where a helpless victim saved by “freedom” and the West’s supposed moral superiority. But real survival in the DPRK isn’t about dramatic escapes, it’s about trying to get by in a brutal system. Park’s stories turn that into a horror show with her as the star, feeding a Western appetite for shock and self-congratulation.
+
+The same distortion shows up with the Underground Railroad. While Black people risking their lives for freedom could be considered “the true heroes”, stories love to overplay the role of white Quaker allies, turning them into central characters. Once again, survival—real, messy, desperate survival—gets turned into a hero story starring outsiders.
+
+In both those cases, the real struggles of marginalized people are pushed to the background, and we steal the narrative to show how great and generous Western white heroes are for helping those poor helpless escapees—enslaved people or North Koreans—escape and get to experience the civil liberties we now have here in the flawless utopia that is the West.
