@@ -1,0 +1,18 @@
+- greek Pantheon observing humanity millenia even after they stopped being worshipped
+- as they watch humanity evolve, their commentary becomes a mirror for human anxieties about meaning and obsolescence
+- intended reader
+	- reflective readers interested in mythology and in exploring existential themes
+- first-person rotating narration, limited perspective from different gods
+	- allows us to contrast the vast timeless nature of the gods with a deeply personal fractured internal narrative. Each god is given a voice to explore their reaction to being forgotten: bitterness, curiosity, boredom, hope, etc
+	- makes gods seem vulnerable and introspective, challenges the reader’s expectations of divinity, encourages reflection on mortality and relevance
+- fragmented, episodic structure
+	- each chapter is a standalone observation or reflection from one god, loosely following human history
+	- mimic the non-linear perception of time by immortal beings
+	- evokes disorientation and contemplation, encourages the reader to piece together meaning across that discontinuity
+- motifs and symbols
+- language style
+	- elevated, poetic prose with moments of informal, even humorous interjections
+	- different registers and tones from different gods
+- irony, ambiguity, or paradox
+	- 
+- other things?

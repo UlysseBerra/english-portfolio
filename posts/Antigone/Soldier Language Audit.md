@@ -1,0 +1,5 @@
+- social class (even has a man, his language must reflect his lower position in the Greek social hierarchy)
+- referring to the gods constantly
+- informal register, very different from other characters
+- comic relief
+- fearful and defensive

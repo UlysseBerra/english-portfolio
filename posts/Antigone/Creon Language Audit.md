@@ -1,0 +1,7 @@
+- king of Thebes
+- two faces
+	- ruler
+	- human, family-oriented
+- rigidity of law/rigidity of his language
+- imposes himself on his audience
+- raising himself higher by belittling others

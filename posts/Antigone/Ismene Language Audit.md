@@ -1,0 +1,6 @@
+- gender roles as accepted by women
+- use of pseudo-logos to convince Antigone of their position in society
+- anaphora to strengthen an otherwise weak position
+- pushing her fears onto Antigone
+- pathos as she’s trying to connect with Antigone
+- mirrors Antigone

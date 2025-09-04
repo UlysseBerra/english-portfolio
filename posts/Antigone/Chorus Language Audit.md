@@ -1,0 +1,3 @@
+- the chorus represents the rest of the population of Thebes
+- synecdoche to make this warning personal
+- assertive tone to show a clear difference between mortals and the gods

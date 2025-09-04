@@ -1,0 +1,3 @@
+I found the character of Tiresias to be the one which benefitted the most from the theatrical rendition of the text. This is mainly because of how dramatic the character was interpreted to be, and because of the variance of this character specifically between versions, since others interpret him as a weak old man.
+
+I also found Ismene interesting, because the “alive” nature of theater emphasized the contrast between her lack of involvement at first and her seeking honor in death later.
